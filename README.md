@@ -1,1 +1,1 @@
-This is just for my univesity
+This is just for my univesity tasks
